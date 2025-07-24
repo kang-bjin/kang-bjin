@@ -1,6 +1,6 @@
 #### Come on superman, say your stupid line
 
-👉 [Resume](https://drive.google.com/file/d/1ErDzx82lVbPMfnSz-G5dR3y3w0a3rwcU/view?usp=sharing)
+👉 [Resume](https://drive.google.com/file/d/1QSNNM0it3VmMxV2wIMtN-slnNgnnvkRz/view?usp=sharing)
 
 <!--
 **kang-bjin/kang-bjin** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
